@@ -1,1 +1,1 @@
-The Model A, produced by Oldsmobile in 1901, was the first mass-produced American car to feature an assembly line manufacturing process, streamlining production and reducing costs.
+After the end of World War II, automobile manufacturers resumed civilian production and introduced new models designed to meet post-war demand for personal transportation.
