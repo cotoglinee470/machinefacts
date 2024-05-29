@@ -1,1 +1,1 @@
-The Chevrolet Fleetline Aerosedan, introduced in 1941 but popular in the post-war period, featured sleek styling and was one of the first cars to incorporate streamlining for improved aerodynamics.
+The Volkswagen Beetle, originally designed in the 1930s but produced after World War II, became one of the most iconic cars of the 20th century, known for its simplicity, reliability, and affordability.
