@@ -1,1 +1,1 @@
-The Pierce-Arrow Model 66, introduced in 1909, was one of the most powerful cars of its time, featuring a massive 824 cubic inch engine capable of producing 66 horsepower.
+The Hudson Commodore, introduced in 1941 but popular in the post-war years, was a full-size car known for its innovative "step-down" design, which lowered the car's center of gravity for improved handling.
