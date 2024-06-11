@@ -1,1 +1,1 @@
-The Hudson Commodore, introduced in 1941 but popular in the post-war years, was a full-size car known for its innovative "step-down" design, which lowered the car's center of gravity for improved handling.
+The Lincoln Motor Company, established in 1917, was acquired by Ford in 1922, positioning it as a luxury brand within the Ford Motor Company lineup.
