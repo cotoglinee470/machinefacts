@@ -1,1 +1,1 @@
-The Detroit Auto Show, first held in 1907, became a major event for showcasing new automobile models and innovations, attracting industry professionals and enthusiasts from around the world.
+The first recorded automobile race took place in 1894, but competitive racing gained popularity in the early 1900s, leading to the development of faster and more powerful cars.
