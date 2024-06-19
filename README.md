@@ -1,1 +1,1 @@
-The Lincoln Continental, introduced in 1940 but produced after World War II, was a luxury car favored by celebrities and dignitaries for its elegant design and refined performance.
+The Nash Ambassador, introduced in 1941 but produced into the post-war period, was a full-size car known for its spacious interior, comfortable ride, and advanced engineering features.
