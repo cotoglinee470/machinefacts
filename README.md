@@ -1,1 +1,1 @@
-The Nash Ambassador, introduced in 1941 but produced into the post-war period, was a full-size car known for its spacious interior, comfortable ride, and advanced engineering features.
+The Tucker 48, introduced in 1948, was an innovative car ahead of its time, featuring a rear-mounted engine, safety features like a padded dashboard, and unconventional styling elements like a centered headlight.
