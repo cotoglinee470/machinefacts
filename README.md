@@ -1,1 +1,1 @@
-The Peerless Motor Car Company, founded in 1900, ceased automobile production in 1931 after struggling to compete with larger automakers during the economic downturn of the late 1920s.
+The Auburn Automobile Company, founded in 1900, gained prominence in the 1920s with models like the Auburn 8-88, known for their stylish designs and powerful engines.
