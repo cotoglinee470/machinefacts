@@ -1,1 +1,1 @@
-The Auburn Automobile Company, founded in 1900, gained prominence in the 1920s with models like the Auburn 8-88, known for their stylish designs and powerful engines.
+The Studebaker Champion, introduced in 1939 but produced throughout the 1940s, was a popular mid-priced car known for its reliability, fuel efficiency, and stylish design.
