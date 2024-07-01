@@ -1,1 +1,1 @@
-The Studebaker Champion, introduced in 1939 but produced throughout the 1940s, was a popular mid-priced car known for its reliability, fuel efficiency, and stylish design.
+The Cadillac Series 62, introduced in 1940 but produced into the post-war era, was a luxury car known for its powerful V8 engine, smooth ride, and lavish interior appointments.
