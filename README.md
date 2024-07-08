@@ -1,1 +1,1 @@
-The Willys-Overland Jeep Station Wagon, introduced in 1946, was one of the first mass-produced all-steel station wagons, offering versatility and ruggedness for post-war families.
+The first recorded automobile race took place in 1894, but competitive racing gained popularity in the early 1900s, leading to the development of faster and more powerful cars.
