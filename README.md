@@ -1,1 +1,1 @@
-Rationing of gasoline and rubber during World War II led to reduced driving and conservation efforts among civilians, influencing car design and fuel efficiency in subsequent years.
+The Detroit Auto Show, first held in 1907, became a major event for showcasing new automobile models and innovations, attracting industry professionals and enthusiasts from around the world.
