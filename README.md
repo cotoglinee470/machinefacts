@@ -1,1 +1,1 @@
-The Hudson Commodore, introduced in 1941 but popular in the post-war years, was a full-size car known for its innovative "step-down" design, which lowered the car's center of gravity for improved handling.
+Civilian automobile production in the United States was largely suspended during World War II, as factories were repurposed for war production and resources were redirected to support the war effort.
