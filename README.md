@@ -1,1 +1,1 @@
-Civilian automobile production in the United States was largely suspended during World War II, as factories were repurposed for war production and resources were redirected to support the war effort.
+The Rolls-Royce Silver Ghost, introduced in 1906, set new standards for luxury and reliability in automobile design, earning a reputation as the "best car in the world."
