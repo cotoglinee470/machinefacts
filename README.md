@@ -1,1 +1,1 @@
-The Indianapolis Motor Speedway, built in 1909, became a renowned venue for automobile racing, hosting events like the Indianapolis 500, one of the oldest and most prestigious motorsport races.
+The Nash Motors Company, founded in 1916, gained popularity in the 1920s with models like the Nash Advanced Six, known for their innovative engineering and comfortable ride.
