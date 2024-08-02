@@ -1,1 +1,1 @@
-The Ford Model T, which had dominated the automotive market in the previous decade, ceased production in 1927, marking the end of an era for the iconic "Tin Lizzie."
+The Buick Master Six, introduced in 1925, was one of the first cars to feature four-wheel brakes as standard equipment, enhancing safety and control for drivers.
